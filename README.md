@@ -7,4 +7,4 @@
 - 💬 Ask me about nada.
 - 📫 How to reach me: lulwcas#1849
 - 😄 Pronouns: rei/delas
-- ⚡ Fun fact: nas horas vagas eu sou o culpido do adultério, mais conhecido como little love.
+- ⚡ Fun fact: nas horas vagas eu sou o cupido do adultério, mais conhecido como little love.
